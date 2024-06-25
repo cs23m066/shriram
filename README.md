@@ -1,1 +1,1 @@
-# shriram has great ethichs
+# shriram has great ethichs. please follow themg
